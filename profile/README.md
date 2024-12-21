@@ -1,5 +1,4 @@
-# Download Ninja Arashi 2 MOD APK 1.7.1 (Unlimited Money) Latest Version For Android 2025
-
+# Ninja Arashi 2 v1.7.1 (MOD,Unlimited Money) Free Download For Android 2025
 ## What is Ninja Arashi 2?
 
 Ninja Arashi 2 is an action-packed, side-scrolling platformer game designed for Android devices. It is the thrilling sequel to the popular Ninja Arashi game. Developed by Black Panther, this mobile game follows the journey of Arashi, a once-legendary ninja, as he embarks on a mission to rescue his son from the evil shadow demon, Dosu.
